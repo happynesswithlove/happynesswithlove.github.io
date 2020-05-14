@@ -17,7 +17,7 @@ Voici mes interprétations du jour :
 
 ![Melon](/photos/melon.jpeg)
 
-Mais, en plus de son doux parfum de Provence, les feuilles et jolies fleurs de cet arbrisseau sont riches entre autre en flavonoïdes, et possèdent des vertus médicinales comme:
+Mais, en plus de son doux parfum de Provence, les feuilles et jolies fleurs de cet arbrisseau sont riches entre autre en flavonoïdes, et possèdent des vertus médicinales comme :
 
 - la stimulation du foie
 - l’aide digestive ou dépuratives à utiliser en cure détox
