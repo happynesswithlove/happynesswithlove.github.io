@@ -24,4 +24,4 @@ Mais, en plus de son doux parfum de Provence, les feuilles et jolies fleurs de c
 - Qualité antioxydante associé aux omégas 3
 - Anti-stress associé à la lavande...
 
-Attention toute fois à lui réserver une consommation raisonnable car cette herbe stimulante peut même être excitante pour l’organisme de certaines personnes.
+> Attention toutefois à lui réserver une consommation raisonnable car cette herbe stimulante peut même être excitante pour l’organisme de certaines personnes.
