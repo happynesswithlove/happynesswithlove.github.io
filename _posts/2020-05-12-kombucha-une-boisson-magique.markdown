@@ -14,7 +14,7 @@ Ah, vous pouvez le réaliser vous même vive DIY, on y reviendra plus bas. Sinon
 
 ![Ritual](/photos/ritual.jpeg)
 
-Attention toutefois, cette boisson est déconseillée aux femmes enceintes et allaitantes, aux jeunes enfants et personnes ayant des troubles gastriques.
+> Attention toutefois, cette boisson est déconseillée aux femmes enceintes et allaitantes, aux jeunes enfants et personnes ayant des troubles gastriques.
 
 Vous souhaitez approfondir le sujet ? Je vous recommande alors son cousin le Kéfir, ah ah c’est qui celui-là ? Le kéfir de fruit est également une culture de bactéries mais à la différence du Kombucha celle-ci se fait dans de l’eau sucrée avec rajout de citron et de fruits secs...
 
