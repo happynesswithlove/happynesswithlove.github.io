@@ -3,7 +3,7 @@ layout: post
 title: "Du romarin au jardin"
 ---
 
-## Le romarin, aussi appelé « arbre à Marie » est une herbe magique aux innombrables bienfaits pour notre corps.
+### Le romarin, aussi appelé « arbre à Marie » est une herbe magique aux innombrables bienfaits pour notre corps.
 
 Mon petit arbuste me fait depuis quelques jours des clin d’œil... afin que je l’invite dans ma cuisine et le réinvente ! Il s’agit certainement d’une de mes plantes aromatiques favorite, on peut en mettre partout, dans nos plats salés mais aussi... sucrés !
 
