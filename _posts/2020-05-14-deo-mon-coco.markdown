@@ -14,12 +14,12 @@ Je voulais donc aussi en avoir le cœur net et me lancer dans cet aventure du «
  
  Voilà ce qui m’a le plus intéressé dans cette aventure : le « home-made », rien de plus joyeux que de se lancer dans la cosmétique maison !
  
- Allez on se lance ? Pour cela il vous faudra :
+ **Allez on se lance ? Pour cela il vous faudra :**
  
  - de l’huile de coco bio qui va apporter ses propriétés anti-bactériennes,
  - du bicarbonate de soude, de qualité cosmétique (ses grains doivent être très fin), qui a lui aussi un fort pouvoir anti-bactérien,
  - de la fécule de maïs bio qui va nous permettre de solidifier la préparation,
- - quelques gouttes d’huiles essentielles, pour ma part la lavande anti-infectieuse est très efficace et amène un doux parfum réconfortant en se mariant bien à la coco.
+ - quelques gouttes d’huiles essentielles, pour ma part la lavande anti-inflammatoire et antiseptique est très efficace et amène un doux parfum réconfortant tout en se mariant bien à la coco.
  - Optionnel : de la cire d’abeille pour que votre déo ne se liquidifie pas en été (et oui au-dessus de 25° l’huile de coco redevient liquide).
 
 ![Déo 1](/photos/deo-1.jpeg)
